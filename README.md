@@ -1,0 +1,1 @@
+In trying to catch up with the lectures, I have been still on lecture 5, and therefore the answers in this are all taken from the assignments that you gave us last year in class.  I hope this will count for SOMEthing, but even if it doesn't I completely understand and will continue to plod along doing my best to catch up.  Thanks for understanding.
